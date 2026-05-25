@@ -20,3 +20,4 @@ You can copy or take inspo from my skins *if you ask.* I do stuff like pony trad
 I'll edit this later, I'm tired af.
 
 # My party > yours. Loser!
+hi Phoenix, Zen (& his system), Messenger, Lost, Will (& his system), Elliot, Gourmand, Peanut, Trowel,
