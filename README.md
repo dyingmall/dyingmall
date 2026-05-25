@@ -18,3 +18,5 @@ I don't have dni kind of? as long as you aren't a 10yo & interacting with me, id
 
 You can copy or take inspo from my skins *if you ask.* I do stuff like pony trading & I have a few skins I don't like.
 I'll edit this later, I'm tired af.
+
+# My party > yours. Loser!
