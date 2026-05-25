@@ -4,12 +4,15 @@ genuinely, how the fuck do I do READMEs? @Grok. Answer.
 
 I go by Anaxa or Swan, Bodily 20 system.
 I have many disorders, like **audhd, aspd, npd..** list gos on, ask if friends!
+
 C+H always encouraged unless said otherwise, we have a touch & hide comfort.
 W2I ALWAYS if you are not in my party, I'm 99% zoned out or offtab.
+
 We're extremely social and fun, but have low social battery. I can be dry or snappy at times. Sorry!
 Most if not all of my skins are based off of how a introject looks like in headspace. Do not whisper me saying it's "inaccurate" nobody gaf.
 
 I'm apathetic and lack empathy + sympathy severely, I may come off as uncaring or intimidating. So if you need me to use tonetags, **LET ME KNOW.**
+
 I don't have dni kind of? as long as you aren't a 10yo & interacting with me, idgaf. Though if you irritate me or any of my friends don't like you, I will block request or hide you fully. no in-between.
 ^ edit: don't ask us about our disorders and symptoms if we aren't close, it makes us uncomfortable. Thanks.
 
