@@ -16,5 +16,5 @@ I'm apathetic and lack empathy + sympathy severely, I may come off as uncaring o
 I don't have dni kind of? as long as you aren't a 10yo & interacting with me, idgaf. Though if you irritate me or any of my friends don't like you, I will block request or hide you fully. no in-between.
 ^ edit: don't ask us about our disorders and symptoms if we aren't close, it makes us uncomfortable. Thanks.
 
-You can copy or take inspo from my skins *if you ask.* I do stuff like pony trading & I have a few skins don't like.
+You can copy or take inspo from my skins *if you ask.* I do stuff like pony trading & I have a few skins I don't like.
 I'll edit this later, I'm tired af.
