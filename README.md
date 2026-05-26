@@ -1,6 +1,6 @@
 ![killer](https://i.postimg.cc/BvzjWRbh/120-removebg-preview.png)
 
-genuinely, how the fuck do I do READMEs? @Grok. Answer.
+genuinely, how the fuck do I do READMEs? @Grok. Answer. also,  I used to be @MAY-MADNESS2012. I miss my 400 followers, come back pls
 
 I go by Anaxa or Swan, Bodily 20 system.
 I have many disorders, like **audhd, aspd, npd..** list gos on, ask if friends!
