@@ -1,5 +1,6 @@
 rmking dis cus im laaayyzzzzz
 
 -14 dni, hide me = i ask why, don't lie abt ur age to befriend me, eeehhhh I'll make this pretty #later, i have a job.
+Additionally, if anything about me bothers you, tell me about it so we can sort it out. Be mature and don't hide me without a word, it's odd and annoying, thanks. Act your age.
 ![](https://private-user-images.githubusercontent.com/199856131/604718351-2abff2f5-7e6b-416c-ae56-47cef2b80c89.png?jwt=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJpc3MiOiJnaXRodWIuY29tIiwiYXVkIjoicmF3LmdpdGh1YnVzZXJjb250ZW50LmNvbSIsImtleSI6ImtleTUiLCJleHAiOjE3ODA5NTcxODUsIm5iZiI6MTc4MDk1Njg4NSwicGF0aCI6Ii8xOTk4NTYxMzEvNjA0NzE4MzUxLTJhYmZmMmY1LTdlNmItNDE2Yy1hZTU2LTQ3Y2VmMmI4MGM4OS5wbmc_WC1BbXotQWxnb3JpdGhtPUFXUzQtSE1BQy1TSEEyNTYmWC1BbXotQ3JlZGVudGlhbD1BS0lBVkNPRFlMU0E1M1BRSzRaQSUyRjIwMjYwNjA4JTJGdXMtZWFzdC0xJTJGczMlMkZhd3M0X3JlcXVlc3QmWC1BbXotRGF0ZT0yMDI2MDYwOFQyMjE0NDVaJlgtQW16LUV4cGlyZXM9MzAwJlgtQW16LVNpZ25hdHVyZT1mODUwODU2NjQzNWJmZjNkNjdhYzQwZTEwZDIyY2UzNmRhYjhiY2UwNzM3ZTU2MDdiMWUxNWY5MWZhMzg4ZWE1JlgtQW16LVNpZ25lZEhlYWRlcnM9aG9zdCZyZXNwb25zZS1jb250ZW50LXR5cGU9aW1hZ2UlMkZwbmcifQ.UrTLckWqjhRPjmZ3eCQPta82bzk7Aakzsn1krW9EQ3A)
 my party.. stupid bums
